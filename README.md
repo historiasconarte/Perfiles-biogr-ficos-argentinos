@@ -1,1 +1,3 @@
-# Perfiles-biogr-ficos-argentinos
+# Perfiles-biográficos-argentinos
+Abad, Elías
+Político, maestro y periodista. Nació en Goya (Corrientes), el 20 de julio de 1891. Recibido de maestro, ejerció la docencia en Bella Vista y, a partir de 1907, participó en la vida política local desde las filas del Partido Autonomista, cuya presidencia ocupó en la capital de la provincia desde 1930 a 1940. Fue concejal en su ciudad natal durante varios períodos, presidente del Concejo Deliberante, senador provincial en 1930-34, intendente municipal de Corrientes en el gobierno de Pedro Numa Soto, senador nacional en 1942-43, constituyente en 1957 en la Convención Reformadora de la Constitución Nacional, reunida en Santa Fe, candidato conservador a la gobernación de la provincia. 
